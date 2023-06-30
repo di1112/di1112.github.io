@@ -1,1 +1,5 @@
-# di1112.github.io
+Professional Summary 
+
+
+As a mathematics professor in Artificial intelligence and data science department with over two years of experience teaching at the collegiate level, I am an expert in the subject. I have tremendous knowledge of descriptive and inferential statistics, and I also have very good knowledge of financial mathematics. I did one research project in financial mathematics during my m.sc studies last semester. I also wrote a research paper regarding my research project topic. I have too much interest in research. As you know, I have completed my master's in mathematics, so I have very good knowledge of a variety of mathematics subjects as well as Big data and machine learning, such as linear algebra, abstract algebra, operation research which is one of my favorite subjects, number theory, etc. My aim is to demonstrate my commitment to assisting university students in reaching their maximum academic potential and my strong teaching philosophy and understanding of a variety of strategies for motivating pupils to improve their competence in certain areas. I am a dedicated supporter of university programs and community outreach events that encourage learning and serve the community.
+
